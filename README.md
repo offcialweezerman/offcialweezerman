@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @offcialweezerman
+- 👀 I’m interested in game devolpement
+- 🌱 I’m currently learning: how to actually do anything related to gmae devolpement coding/art/cooking  you know
+- 📫 How to reach me: @weezer_man_ on twitter
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i have no mouth 
